@@ -4,7 +4,7 @@
 - Intern Software Engineer at ZeroCode Software | Undergraduate
 - Colombo, Sri Lanka
 - **sahirubalasuriya@gmail.com**
-- **https://www.linkedin.com/in/sahiru-balasooriya/**
+- **in/sahiru-balasooriya/**
 
 ---
 
